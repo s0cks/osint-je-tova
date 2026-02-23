@@ -250,6 +250,11 @@ This is contradictory to what Officer Thomas says he did during the discovery.
 
 It was noted in the FBI documents from the DOJ that Officer Noel is a frequent traveller. Her last trip before the Epstein death was to China.
 
+### Travels to Beijing int the Lead-up to Jeffrey Epstein's Death
+
+It was noted that [Tova traveled to Beijing](https://standardworks.ai/public-archives/epstein-files/documents?q=EFTA00130149) during the lead up to Jeffrey Epstein's death.
+This was discovered to be at the same time as associates of Jeffrey Epstein were travelling there as well. In iMessage logs from Epstein, Larry Summers [sent "Regards from Beijing"](https://standardworks.ai/public-archives/epstein-files/documents?q=EFTA01618678)
+
 ### Officer Noel is an Army Vet
 
 It is claimed, and backed up w/ evidence, that Officer Noel is an army vet.
