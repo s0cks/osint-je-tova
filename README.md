@@ -246,6 +246,10 @@ In an inmate interview, it was noted that the inmate across the hall from Epstei
 It was noted in Officer Noel's FBI interview that Officer Thomas yelled "Bring the cutter"
 This is contradictory to what Officer Thomas says he did during the discovery.
 
+### Tova Google's "Latest on Jeffrey Epstein in jail" Within Hours before Jeffrey's Death
+
+It was noted that on, 10 Aug 2019 5:42am Tova googles "latest on epstein in jail" This is suspiciously close to Jeffrey's untimely death
+
 ### Officer Noel is a Frequent Traveller
 
 It was noted in the FBI documents from the DOJ that Officer Noel is a frequent traveller. Her last trip before the Epstein death was to China.
