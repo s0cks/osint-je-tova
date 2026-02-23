@@ -302,6 +302,7 @@ It looks like the transcripts for the court case regarding the guards falsifying
 ### Reddit Posts
 
 - <https://www.reddit.com/r/Epstein/comments/1r34r6t/tova>
+- <https://www.reddit.com/r/Epstein/comments/1rbm1bv/the_je_death_situation_could_be_way_bigger_than/>
 
 ## Contributing
 
@@ -312,6 +313,7 @@ See [Contributing](/Contributing.md).
 Below is the list of contibutors for this OSINT analysis:
 
 - [@s0cks](https://github.com/s0cks)
+- u/LaughOk6636
 - and many more anonymous contributors
 
 We  you all
